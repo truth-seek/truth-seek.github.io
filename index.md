@@ -38,7 +38,7 @@ Before moving to Islamic sources, let's see in more depth the parts of the Torah
 
 Note that these two verses are verses that surround the same OT verses that Dr. Naik uses in his arguments.
 
-Moving to the Islamic sources, we find the following sources from Sahih al-Bukhari which narrate that the prophet ate animal meat were banned in the Torah.
+Moving to the Islamic sources, we find the hadith texts from Sahih al-Bukhari which narrate that the prophet ate types of animal meat that were banned in the Torah.
 *Sahih al-Bukhari 2572 and 2485* narrate that Muhammad used to eat rabbit and camel, respectively, thus by meaning that he has broken the Jewish law that muslims usually accuse Christians
 of breaking.
 
