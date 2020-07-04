@@ -2,6 +2,7 @@
 
 ###### Content derived from David Wood's Video titled: [Christianity, Islam, and Pork: How Zakir Naik Condemns Muhammad!](https://www.youtube.com/watch?v=PupDC2gA5-4)
 
+[a relative link](dietary-torah-laws.md)
 ## Islamic Argument (derived from Dr. Zakir Naik)
 Dr. Zakir Naik mentions Lev 11:7-8 and Deut 14:8 to note the importance of following the dietary laws of the Torah and claims that **"if [one] breaks one law ... from the Old Testament, [they] shall not enter 
 [heaven]."**
