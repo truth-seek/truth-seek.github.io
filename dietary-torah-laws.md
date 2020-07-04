@@ -3,8 +3,7 @@
 ###### Content derived from David Wood's Video titled: [Christianity, Islam, and Pork: How Zakir Naik Condemns Muhammad!](https://www.youtube.com/watch?v=PupDC2gA5-4)
 
 ## Islamic Argument (derived from Dr. Zakir Naik)
-Dr. Zakir Naik mentions Lev 11:7-8 and Deut 14:8 to note the importance of following the dietary laws of the Torah and claims that **"if [one] breaks one law ... from the Old Testament, [they] shall not enter 
-[heaven]."**
+Dr. Zakir Naik mentions Lev 11:7-8 and Deut 14:8 to note the importance of following the dietary laws of the Torah and claims that **"if [one] breaks one law ... from the Old Testament, [they] shall not enter [heaven]."**
 > #### Leviticus 11:7-8
 > 7 And the swine, though he divide the hoof, and be clovenfooted, yet he cheweth not the cud; he is unclean to you.
 > 8 Of their flesh shall ye not eat, and their carcase shall ye not touch; they are unclean to you.
@@ -12,13 +11,12 @@ Dr. Zakir Naik mentions Lev 11:7-8 and Deut 14:8 to note the importance of follo
 > #### Deuteronomy 14:8
 > 8 And the swine, because it divideth the hoof, yet cheweth not the cud, it is unclean unto you: ye shall not eat of their flesh, nor touch their dead carcase.
 
-In supporting his argument, Dr. Naik provides a quote from Jesus, where Jesus says *"Think not that I am come to destroy the law, or the prophets: I am not come to destroy, but to fulfil." (Mark 5:17).*
-His logic can briefly be summarized as follows: Jewish law bans pork, and Jesus affirms Jewish law. Therefore, Christians, who eat pork, are condemned.
+In supporting his argument, Dr. Naik provides a quote from Jesus, where Jesus says *"Think not that I am come to destroy the law, or the prophets: I am not come to destroy, but to fulfil." (Mark 5:17).* Based on these verses, Dr. Naik accuses Christians; his logic of accusation can briefly be summarized as follows: Jewish law bans pork, and Jesus affirms Jewish law. Therefore, Christians, who eat pork, are condemned.
 
-## Issue?
-Islamic sources narrate stories where Muhammad fails to follow the Jewish dietary restrictions which Dr. Naik mentions. Furthermore, the Quran tells muslims to not abide by the Jewish law.
+## What's the Issue with such an argument?
+Islamic sources narrate stories where *Muhammad fails to follow the Jewish dietary restrictions* which Dr. Naik mentions. Furthermore, the Quran tells muslims to not abide by the Jewish law.
 
-## Explanation
+## Discussion
 Before moving to Islamic sources, let's see in more depth the parts of the Torah that Dr. Naik uses as a proof that Jewish law bans pork. 
 > #### Leviticus 11:1-8:
 > 1 And the Lord spake unto Moses and to Aaron, saying unto them,
